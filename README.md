@@ -1,4 +1,4 @@
-- Hello, I’m @gentzhushi;
+zhuuushiii!!
 
 <!---
 gentzhushi/gentzhushi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
